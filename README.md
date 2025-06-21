@@ -1,4 +1,4 @@
-## Hi there 👋
+hi im evil umm hmu my socials r all @theosgravy
 
 <!--
 **EvilTelemachus/EvilTelemachus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
