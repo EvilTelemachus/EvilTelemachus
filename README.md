@@ -1,10 +1,14 @@
 (im rlly bad at these i dont even know anything about myself gng)
 **Theo**
+
 ➤ Other names :  Gravy, Tiresias, Groovy
+
  → do not call me (unless prompted) : Hermes, Twig, any insults
+
 
 Any Pronouns :: Aroace / Pansexual
 ( currently in a romantic relationship <3 )
+
 
 im also unintentionally dry sometimes sorry gng
 
